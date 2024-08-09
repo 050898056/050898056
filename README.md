@@ -1,5 +1,5 @@
 ![1000000850](https://github.com/user-attachments/assets/14657b58-1a9f-4874-802e-524112112a93)
-- 👋 Hi, I’m @050898056
+- 👋 Hi, I’m @b7il2222@gmail.com
 - 👀 I’m interested in ...b7il2222@gmail.com 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
